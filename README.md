@@ -1,0 +1,1 @@
+# app-industria-NX-2
